@@ -3,6 +3,6 @@ In my previous role, I worked on various data-driven projects, developed interac
 Here is my detailed resume=
 [Resume_data_analyst_Pavan_Kumar_BR.pdf](https://github.com/user-attachments/files/16303156/Resume_data_analyst_Pavan_Kumar_BR.pdf)
 Linkedin profile - https://www.linkedin.com/in/pavankumarbr/
-
+Contact number - 7022368359
 
 
