@@ -9,7 +9,8 @@ I am movieholic and a fan of Powerstar Puneeth Rajkumar. I lookup to him.
 ![image](https://github.com/user-attachments/assets/bf42895d-aba7-4e91-a84c-50ea6bba1714)
 
 Here is my detailed resume=
-[Resume_data_analyst_Pavan_Kumar_BR.pdf](https://github.com/user-attachments/files/16303156/Resume_data_analyst_Pavan_Kumar_BR.pdf)
+[Resume_data_analyst_Pavan_Kumar_BR.pdf] [Resume_data_analyst_Pavan_Kumar_BR.pdf](https://github.com/user-attachments/files/16331386/Resume_data_analyst_Pavan_Kumar_BR.pdf)
+
  Linkedin profile - https://www.linkedin.com/in/pavankumarbr/ 
 Visit my portfolio  - https://www.datascienceportfol.io/pavankumarbr  
 Mailto  - pavankumarbr1998@gmail.com  
